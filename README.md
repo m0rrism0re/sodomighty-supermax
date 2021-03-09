@@ -1,1 +1,1 @@
-# sodo-mighty-starmap
+# sodomighty-supermax
